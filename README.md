@@ -1,1 +1,1 @@
-# Exploration-of-code-switching-in-Tatarstan-and-Yakutia-through-an-analysis-of-regional-social-media
+# Exploration of code switching in Tatarstan and Yakutia through an analysis of regional social media
